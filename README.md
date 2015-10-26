@@ -6,9 +6,9 @@ Monitor and evaluate program based on affiliate cooperative agreement including 
 Develop and monitor a program budget of $ 300,000 for the Matching Grant program.
 Supervise 4 staff members which includes weekly supervisions, leading team meetings, advising for client care issues, and conducting performance reviews.
 # January 2013 to Present - Holistic Global Partners (HGP), Board Member
-·	Serve as a board member for HGP which is currently supporting a program Hallelujah House of Yahweh (HHY) serving orphan children in Zambia thru Hallelujah House of Yahweh (HHY).
-·	Work on a team to make decisions that best serves the families and children in Zambia in a culturally relevant way while making the most of limited resources.
-·	Offer cross-cultural expertise and perspective to the decision making process.·	
+Serve as a board member for HGP which is currently supporting a program Hallelujah House of Yahweh (HHY) serving orphan children in Zambia thru Hallelujah House of Yahweh (HHY).
+Work on a team to make decisions that best serves the families and children in Zambia in a culturally relevant way while making the most of limited resources.
+Offer cross-cultural expertise and perspective to the decision making process.·	
 # Bethany Christian Services, Case Manager	Provide case management services to refugee families and their children 
 Collaborated with co-sponsors and volunteers to provide various types of client assistance including housing, financial, cultural, educational, and employment. 
 Developed case management resource manual which listed community resources and partners to aid in client referrals. 
@@ -18,5 +18,6 @@ Conducted trainings to refugees as well as volunteers and co-sponsoring churches
 # May 2012 - Grand Valley State University, Michigan U.S.
 Master of Public Administration
 # May 2012 - Grand Valley State University, Michigan U.S.
+Addis Ababa University, Addis Ababa, Ethiopia
 Master of Social Work
 # 2006 Addis Ababa University, Addis Ababa, Ethiopia
