@@ -21,3 +21,4 @@ Master of Public Administration
 Addis Ababa University, Addis Ababa, Ethiopia
 Master of Social Work
 # 2006 Addis Ababa University, Addis Ababa, Ethiopia
+Bachealor of Arts in Sociology and Social Antrhopology
