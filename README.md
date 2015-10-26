@@ -1,10 +1,10 @@
 # Resume
 # May 2012 to 2015 - _Bethany Christian Services, Matching Grant Program Supervisor_
-*Currently, oversee a refugee resettlement program serving 150 refugee families and children in a year.
-*Created a 3 year project design that best serves the needs of clients while accomplishing program and budget goals set by affiliate office.
-*Monitor and evaluate program based on affiliate cooperative agreement including monthly and annual reporting for finances and performance. 
-*Develop and monitor a program budget of $ 300,000 for the Matching Grant program.
-*Supervise 4 staff members which includes weekly supervisions, leading team meetings, advising for client care issues, and conducting performance reviews.
+-Currently, oversee a refugee resettlement program serving 150 refugee families and children in a year.
+-Created a 3 year project design that best serves the needs of clients while accomplishing program and budget goals set by affiliate office.
+-Monitor and evaluate program based on affiliate cooperative agreement including monthly and annual reporting for finances and performance. 
+-Develop and monitor a program budget of $ 300,000 for the Matching Grant program.
+-Supervise 4 staff members which includes weekly supervisions, leading team meetings, advising for client care issues, and conducting performance reviews.
 # January 2013 to Present - _Holistic Global Partners (HGP), Board Member_
 *Serve as a board member for HGP which is currently supporting a program Hallelujah House of Yahweh (HHY) serving orphan children in Zambia thru Hallelujah House of Yahweh (HHY).
 *Work on a team to make decisions that best serves the families and children in Zambia in a culturally relevant way while making the most of limited resources.
