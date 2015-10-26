@@ -18,8 +18,6 @@ Conducted trainings to refugees as well as volunteers and co-sponsoring churches
 # May 2012 - _Grand Valley State University, Michigan U.S._
 Master of Public Administration
 # May 2012 - _Grand Valley State University, Michigan U.S._
-Addis Ababa University, Addis Ababa, Ethiopia
 Master of Social Work
-# 2006 Addis Ababa University,
-Addis Ababa, Ethiopia
+# 2006 Addis Ababa University, _Addis Ababa, Ethiopia_
 Bachealor of Arts in Sociology and Social Antrhopology
